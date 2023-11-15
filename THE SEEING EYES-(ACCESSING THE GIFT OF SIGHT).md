@@ -53,3 +53,33 @@ And immediately he received his sight, and followed him, glorifying God: and all
 
   Ephesians 3:20 Now unto him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us,
   
+3. The capacity to have insight from scripture
+  Ephesians 1:17-18 That the God of our Lord Jesus Christ, the Father of glory, may give unto you the spirit of wisdom and revelation in the knowledge of him:
+  The eyes of your understanding being enlightened; that ye may know what is the hope of his calling, and what the riches of the glory of his inheritance in the saints,
+
+   Isaiah 29:11-12 And the vision of all is become unto you as the words of a book that is sealed, which men deliver to one that is learned, saying, Read this, I pray thee: and he saith, I cannot; for it is sealed:
+   And the book is delivered to him that is not learned, saying, Read this, I pray thee: and he saith, I am not learned.
+
+4. Prophetic revelations
+   John 16:13 Howbeit when he, the Spirit of truth, is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come.
+
+   Revelation 1:1 The Revelation of Jesus Christ, which God gave unto him, to shew unto his servants things which must shortly come to pass; and he sent and signified it by his angel unto his servant John:
+
+   Revelation 4:1 After this I looked, and, behold, a door was opened in heaven: and the first voice which I heard was as it were of a trumpet talking with me; which said, Come up hither, and I will shew thee things which must be hereafter.
+
+   2 Kings 5:20-25 But Gehazi, the servant of Elisha the man of God, said, Behold, my master hath spared Naaman this Syrian, in not receiving at his hands that which he brought: but, as the Lord liveth, I will run after him, and take somewhat of him.
+   So Gehazi followed after Naaman. And when Naaman saw him running after him, he lighted down from the chariot to meet him, and said, Is all well?
+   And he said, All is well. My master hath sent me, saying, Behold, even now there be come to me from mount Ephraim two young men of the sons of the prophets: give them, I pray thee, a talent of silver, and two changes of garments.
+   And Naaman said, Be content, take two talents. And he urged him, and bound two talents of silver in two bags, with two changes of garments, and laid them upon two of his servants; and they bare them before him.
+   And when he came to the tower, he took them from their hand, and bestowed them in the house: and he let the men go, and they departed.
+   But he went in, and stood before his master. And Elisha said unto him, Whence comest thou, Gehazi? And he said, Thy servant went no whither.
+
+
+   ## Activating the gift of sight
+   1. Praying in the spirit
+      Acts 1:8 But ye shall receive power, after that the Holy Ghost is come upon you: and ye shall be witnesses unto me both in Jerusalem, and in all Judaea, and in Samaria, and unto the uttermost part of the earth.
+      Acts 2:4 And they were all filled with the Holy Ghost, and began to speak with other tongues, as the Spirit gave them utterance.
+
+   2. Meditation: Rich moments where you meditate upon the Word of God or scripture based resources, like sermons.
+   3. Impartation
+      Ephesians 3:9 And to make all men see what is the fellowship of the mystery, which from the beginning of the world hath been hid in God, who created all things by Jesus Christ:
