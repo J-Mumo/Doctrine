@@ -104,6 +104,8 @@ Overcomer: One who faces, challenges and subdues / gains control over an enemy, 
     Or what shall a man give in exchange for his soul?
 
   2. Your family (both biological and spiritual)
+     
+  4. Your assignment
     John 4:34 Jesus saith unto them, My meat is to do the will of him that sent me, and to finish his work.
 
   What is not worth dying for:
