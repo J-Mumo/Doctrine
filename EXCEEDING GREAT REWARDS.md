@@ -84,4 +84,9 @@ Matthew 25:21 His lord said unto him, Well done, thou good and faithful servant:
   I will send my fear before thee, and will destroy all the people to whom thou shalt come, and I will make all thine enemies turn their backs unto thee.
   And I will send hornets before thee, which shall drive out the Hivite, the Canaanite, and the Hittite, from before thee.
 
-  
+  ### Your role
+  1. Believe
+  Luke 1:38 And Mary said, Behold the handmaid of the Lord; be it unto me according to thy word. And the angel departed from her.
+  2. Obey
+    Hebrews 4:1-2 Let us therefore fear, lest, a promise being left us of entering into his rest, any of you should seem to come short of it.
+    For unto us was the gospel preached, as well as unto them: but the word preached did not profit them, not being mixed with faith in them that heard it.
