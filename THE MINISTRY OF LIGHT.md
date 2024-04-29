@@ -31,13 +31,20 @@ Ephesians 4:18 Having the understanding darkened, being alienated from the life 
     John 8:32 And ye shall know the truth, and the truth shall make you free.
 
     ### Steps to know the truth
-    1. Access to the Word
-    2. Access to the Holy Spirit
-    3. Access to the ministry of the teaching priest
-
-  2. Hearing and receiving the truth.
+    1. Access to the truth
+    - Access to the Word.
+      John 17:17 Sanctify them through thy truth: thy word is truth.
+      Psalm 119:130 The entrance of thy words giveth light; it giveth understanding unto the simple.
   
-  3. You must submit to transformation with reference to that truth.
+    - Access to the ministry of the Holy Spirit.
+      John 16:13 Howbeit when he, the Spirit of truth, is come, he will guide you into all truth: for he shall not speak of himself; but whatsoever he shall hear, that shall he speak: and he will shew you things to come.
+  
+    - Access to the ministry of the teaching priest.
+      Jeremiah 3:15 And I will give you pastors according to mine heart, which shall feed you with knowledge and understanding.
+  
+    2. Hearing and receiving the truth
+  
+    3. You must submit to transformation with reference to that truth.
     
 ## How transformation leads to victory
 Our realities in this kingdom are shaped by our belief systems, our mindsets and the quality of our thinking.
