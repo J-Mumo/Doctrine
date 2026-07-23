@@ -1,4 +1,4 @@
-# CHURCH AND STATE - PART ONE (IMPACT BEYOND CHURCH WALLS) PART 1
+# CHURCH AND STATE - PART ONE (IMPACT BEYOND CHURCH WALLS)
 https://www.youtube.com/watch?v=TTa3J-q3jvw
 
 ### Areas to be covered in any teaching ministry
