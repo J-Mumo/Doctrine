@@ -66,4 +66,7 @@ One of the greatest miracles that need to happen is the humility of pastors.
 
 2. There needs to be an upgrade in the quality of the teachings and the method of the teachings to capture and reflect doctrine, the principles of the kingdom, wisdom for living and word compliant world-view.
 
-3. Believers must be trained to not only comment and pray about, but to actively engage in matters that concern state and society.
+3. Believers must be trained to not only comment and pray about, but to actively engage in matters that concern state and society. 
+  - Preaching is not the only way to serve God.
+  - Church ministry is not the only platform to serve the purposes of God.
+  - Kingdom advance will require preachers, economists, policy makers, politicians, judicial personalities, academicians, etc.
